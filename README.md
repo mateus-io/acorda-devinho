@@ -2,7 +2,7 @@
 
 ## Resultado:
 
-[![Vídeo Mostrando o App](https://img.youtube.com/vi/r9RzkD72cIs/0.jpg)](https://www.youtube.com/watch?v=r9RzkD72cIs)
+[![Vídeo Mostrando o App](https://img.youtube.com/vi/NWGjnT6Bk6Y/0.jpg)](https://www.youtube.com/watch?v=NWGjnT6Bk6Y)
 
 ## Aprendizados:
 
